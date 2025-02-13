@@ -1,4 +1,4 @@
-[![Rukesh's GitHub Banner](https://github.com/RukeshAthikari28/banner.png)](https://github.com/RukeshAthikari28)
+[![Rukesh's GitHub Banner](https://github.com/RukeshAthikari28/(https://ibb.co/cht9jtsN))](https://github.com/RukeshAthikari28)
 
 # Hi there, I'm Rukesh Athikari! 👋
 
