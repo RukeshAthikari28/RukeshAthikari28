@@ -1,5 +1,3 @@
-[![Rukesh's GitHub Banner](https://i.ibb.co/YOUR_IMAGE_ID/banner.png)](https://github.com/RukeshAthikari28)
-
 
 # Hi there, I'm Rukesh Athikari! 👋
 
